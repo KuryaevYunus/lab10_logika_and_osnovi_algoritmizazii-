@@ -1,0 +1,1 @@
+# lab10_logika_and_osnovi_algoritmizazii-
